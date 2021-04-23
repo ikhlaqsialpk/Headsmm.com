@@ -1,6 +1,5 @@
-# Headsmm.com SMM Supplier Wholesaler Panel Greatest and Affordable. 
+# Headsmm.com
 
-Headsmm, Fastest TikTok fans' main supplier, Instagram fans, Facebook liking and YouTube views provider.
 
 Easy ways to improve your abilities Social Media Marketing
 The social networking section promotes connections –both go awry.
